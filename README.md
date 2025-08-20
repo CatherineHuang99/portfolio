@@ -2,8 +2,7 @@
 
 
 ### Education  
-**Pepperdine Graziadio Business School**  
-Master of Science in Business Analytics
+- Master of Science in Business Analytics  |  Pepperdine Graziadio Business School (_August 2025_)
 
 **University of California, Los Angeles**  
 Bachelor of Arts in Korean
