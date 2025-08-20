@@ -16,17 +16,17 @@ Bachelor of Arts in Korean
 
 
 ### Work Experience  
-Co-Founder @ Cansea Dive House LLC (China)
+**Co-Founder @ Cansea Dive House LLC (China)**
   - Co-founded and managed a diving center; conducted competitive pricing research, optimized diving class schedules, increased monthly bookings by 30% in year two
   - Developed customer intake procedures and staff protocols to ensure safety, smooth check-ins, and consistent service, improving customer retention and reducing legal risks
   - Identified key metrics and built structured data collection processes to support future analysis and planning
 
-Part-time Coordinator @ Sock Candy LLC (Los Angeles, CA)
+**Part-time Coordinator @ Sock Candy LLC (Los Angeles, CA)**
   - Managed inventory of 5000+ units and handled online order fulfillment with less than 1% of error rate
   - Monitored online portals (Shopify and Faire), identified sales trends, and made inventory recommendations
   - Attended trade shows and assisted with photography sessions, interacted with potential buyers, increased brand visibility and secured new wholesale accounts
 
-Loan Officer Assistant @ ACG Funding Inc (Rowland Heights, CA)
+**Loan Officer Assistant @ ACG Funding Inc (Rowland Heights, CA)**
   - Started and managed new customer files, ensured accurate data input, and generated client credit score reports to assess borrower eligibility as well as loan decision-making
   - Scheduled and tracked closing dates, contingency dates, and loan lock expirations to meet deadlines
 
