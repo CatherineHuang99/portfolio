@@ -3,9 +3,8 @@
 
 ### Education  
 - Master of Science in Business Analytics  |  Pepperdine Graziadio Business School (_August 2025_)
+- Bachelor of Arts in Korean  |  University of California, Los Angeles (_December 2022_)
 
-**University of California, Los Angeles**  
-Bachelor of Arts in Korean
 
 **Relevant coursework:** Principles of Accounting, Intermediate Accounting I and II, Advanced Accounting, Tax Principles and Policy, Advanced Statistical Tools, Social Media Analytics, Business Analytics Programming
 
